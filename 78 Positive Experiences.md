@@ -2,18 +2,26 @@
 
 Write briefly about times when you have displayed each of the following qualities.
 
-Courage 
+#### Courage 
+<br/><br/><br/><br/>
 
-Kindness 
+#### Kindness 
+<br/><br/><br/><br/>
 
-Selflessness 
+#### Selflessness 
+<br/><br/><br/><br/>
 
-Love 
+#### Love 
+<br/><br/><br/><br/>
 
-Sacrifice 
+#### Sacrifice 
+<br/><br/><br/><br/>
 
-Wisdom 
+#### Wisdom 
+<br/><br/><br/><br/>
 
-Happiness 
+#### Happiness 
+<br/><br/><br/><br/>
 
-Determination
+#### Determination
+<br/><br/><br/><br/>
